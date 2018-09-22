@@ -1,4 +1,4 @@
-# Canais da Comunidade TI Uberlândia
+# Canais da Comunidade TI Uberlândia 🚀
 
 Facebook http://bit.ly/facetiudi
 
